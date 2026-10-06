@@ -1,1 +1,1 @@
-[Presentation]([https://docs.google.com/presentation/d/18kspgTPlm5ljy9eJxVG0ycn8cvTqmvcjS2v54Dsb8vI/edit?usp=sharing](https://docs.google.com/presentation/d/1E6t0-0GxKingvWiI7UNBdvw11kT2uUmdFR7vIGIOa78/edit?usp=sharing))
+[Presentation](https://docs.google.com/presentation/d/1E6t0-0GxKingvWiI7UNBdvw11kT2uUmdFR7vIGIOa78/edit?usp=sharing)
